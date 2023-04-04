@@ -1,2 +1,2 @@
 # Ayman-Bouajaji
-Software engineer, Artificial intelligent🤖 &amp; application development 💻
+Software engineer, application development💻 & Artificial intelligent🤖Enthusiast 
